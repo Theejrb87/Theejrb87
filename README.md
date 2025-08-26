@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @Theejrb87
-- 👀 I’m interested in Bread 
+- 👋 Hi, I’m jrb
+- 👀 I’m interested in learning new things.
 - 🌱 I’m currently learning by stumbling
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me @gmail.com
+- 📫 How to reach me theejrb87@gmail.com
 - 😄 Pronouns: manifested
 - ⚡ Fun fact: 😺 
 
